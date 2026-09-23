@@ -1,3 +1,3 @@
 <div align="center">
   
-<img width="736" height="414" alt="Networked Ghosts_" src="https://github.com/user-attachments/assets/69f21396-3c9b-4a85-b101-6b26ff5a221c" />
+<img width="2944" height="1656" alt="Networked Ghosts_" src="https://github.com/user-attachments/assets/9167703c-5662-4faf-beb2-519d2d34c62c" />
