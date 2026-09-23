@@ -1,3 +1,1 @@
-<img width="3840" height="2160" alt="retsu-unohana-from-bleach-live-wallpaper" src="https://github.com/user-attachments/assets/3d93c3bc-c380-44ec-840a-ff8a073648c0" />
-
-
+<img width="736" height="414" alt="Networked Ghosts_" src="https://github.com/user-attachments/assets/69f21396-3c9b-4a85-b101-6b26ff5a221c" />
