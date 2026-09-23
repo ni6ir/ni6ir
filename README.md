@@ -1,3 +1,3 @@
 <div align="center">
-    
-<img width="2944" height="1656" alt="Networked Ghosts_" src="https://github.com/user-attachments/assets/9167703c-5662-4faf-beb2-519d2d34c62c" />
+<img width="400" height="200" alt="ssakisz_ssspin io_1790204504" src="https://github.com/user-attachments/assets/581a85c6-b99d-451c-bfc4-a31b92bf5f6f" />
+
