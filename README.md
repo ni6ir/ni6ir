@@ -5,7 +5,6 @@
 
 
 
+<img width="736" height="414" alt="746612444515060432" src="https://github.com/user-attachments/assets/4e677e10-66aa-406e-998b-741caa9d91c8" />
 
-
-https://github.com/user-attachments/assets/f5750267-1822-404e-91e9-1ca10aa33e08
 
