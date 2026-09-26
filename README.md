@@ -1,6 +1,7 @@
 
 <div align="center">
-  <img width="2944" height="1656" alt="Networked Ghosts_" src="https://github.com/user-attachments/assets/dcb1e791-f42e-461a-b532-5610d13c5bd6" />
+<img width="500" height="269" alt="undefined - Imgur" src="https://github.com/user-attachments/assets/ec5888e8-075b-4a4e-b3fe-476eee525445" />
+
 
 
 
